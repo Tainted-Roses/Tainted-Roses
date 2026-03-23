@@ -13,4 +13,5 @@
 
   $$\color{#FFD9B2}{\text{ diagnosed audhd and dyslexia , so please be patient with me }}$$
   $$\color{#FFADA3}{\text{ sensitive people dni }}$$
+  $$\color{#FFD9B2}{\text{ dont copy me }}$$
 </p>
